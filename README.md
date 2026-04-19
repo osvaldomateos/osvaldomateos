@@ -2,7 +2,7 @@
 
 💼 Profissional focado em Finanças e Mercado de Capitais  
 💻 Aprofundando o meu conhecimento na área de Tecnologia  
-🚀 Objetivo: unir análise financeira com desenvolvimento de sistemas
+🚀 Pretendo contribuir para o desenvolvimento de sistemas dedicados à análise financeira
 
 ---
 
