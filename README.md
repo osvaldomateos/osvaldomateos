@@ -60,4 +60,4 @@ Sou entusiasta da interseção entre tecnologia e mercado financeiro, e busco de
 
 ## ⚡ Frase que me define
 
-_"Seja a mudança que você quer ver no mundo - Mahatma Gandhi"_
+_"Seja a mudança que você quer ver no mundo" - Mahatma Gandhi_
