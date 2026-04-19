@@ -58,6 +58,6 @@ Sou entusiasta da interseção entre tecnologia e mercado financeiro, e busco de
 
 ---
 
-## ⚡ Frase que me define
+## ⚡ Frase que me inspira
 
 _"Seja a mudança que você quer ver no mundo" - Mahatma Gandhi_
