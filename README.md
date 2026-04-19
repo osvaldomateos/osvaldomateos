@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Osvaldo Mateos
+# 👋 Olá, eu sou o Osvaldo Mateos!
 
 💼 Profissional focado em Finanças e Mercado de Capitais  
 💻 Aprofundando o meu conhecimento na área de Tecnologia  
